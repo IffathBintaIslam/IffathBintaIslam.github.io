@@ -1,1 +1,0 @@
-# IffathBintaIslam.github.io
